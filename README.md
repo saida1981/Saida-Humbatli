@@ -1,4 +1,4 @@
-MBA Quality Management Classes tasks
+MBA Quality Management Course tasks
 
 Task 1
 
